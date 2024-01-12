@@ -1,0 +1,1 @@
+# signate_smbc_40th_place_solution
